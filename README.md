@@ -1,0 +1,1 @@
+# shinkovaVlada-qa.github.io
